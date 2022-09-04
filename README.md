@@ -9,4 +9,3 @@
 - 📫 How to reach me: Email: dayoa92@gmail.com
                       LinkedIn: https://www.linkedin.com/in/temidayo-akindileni-3595a81a2/
 - ⚡ Fun fact: I love learning and upskilling.
--->
